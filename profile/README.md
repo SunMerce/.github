@@ -39,4 +39,4 @@ We follow core principles that ensure we provide the best service possible:
 ## Get in Touch
 
 Ready to take your eCommerce platform to the next level?  
-Reach out to us for a **free consultation** and discover how we can tailor our solutions to your business goals.
+Visit us at [www.sunmerce.com](https://www.sunmerce.com) or reach out for a **free consultation** and discover how we can tailor our solutions to your business goals.
